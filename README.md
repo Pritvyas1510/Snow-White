@@ -1,4 +1,4 @@
-# 🍎 Snow-White – Fresh Fruits, Delivered Fast! 🍌
+# 🍎 Snow-White – Fresh Fruits, Delivered Fast! 
 
 Welcome to **Snow-White**, your ultimate online destination for fresh, juicy, and handpicked fruits! We make healthy living easy, delicious, and convenient – all from the comfort of your home.  
 
